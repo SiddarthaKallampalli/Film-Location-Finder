@@ -31,7 +31,7 @@
 📬 Contact
 For queries, feedback, or contributions:
 
-📧 Email: gowthamperumallapalli@gmail.com
+📧 Email: siddarthakallampalli70@gmail.com
 
-💬 WhatsApp: +91 6304145334
+💬 WhatsApp: +91 6305323077
 
