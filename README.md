@@ -7,8 +7,6 @@
 ## 🌐 Live Demo
 > [Coming Soon / Add Link If Deployed]
 
----https://film-location-finder.vercel.app/
-
 ## 📸 Features
 
 - 🔎 **Search Locations** by movie name or location name
