@@ -31,5 +31,8 @@ For queries, feedback, or contributions:
 
 📧 Email: siddarthakallampalli70@gmail.com
 
+##LINKDIN:
+https://www.linkedin.com/in/siddartha-kallampalli-a8982a2a3?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
 💬 WhatsApp: +91 6305323077
 
